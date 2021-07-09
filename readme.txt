@@ -1,3 +1,3 @@
-Come and sit and eat.
+Come and sit and eat and drink.
 We have fish and fruit.
 
